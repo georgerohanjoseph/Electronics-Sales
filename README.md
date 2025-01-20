@@ -19,7 +19,8 @@ There is a few percentage of people, who are not buying accessories. We should e
 
 
 
-![image](https://github.com/user-attachments/assets/f2eb937a-a324-4b61-ba00-f688f255bb63)
+![image](https://github.com/user-attachments/assets/4121b3c4-da55-44fd-93f7-247e9a3140fa)
+
 
 
 
